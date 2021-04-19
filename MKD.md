@@ -8,3 +8,4 @@ martinova80803@icloud.com
 г.Омск ул.Северная 13, кв 8
 г.Омск ул.Северная 13, кв 8
 martinova80803@icloud.com
+client
